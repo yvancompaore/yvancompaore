@@ -3,7 +3,7 @@
 
 ## I'm a Sofware Engineer !!
 
-- 🌱 I’m currently learning everything 🤣
+- 🌱 I’m currently learning everything 
 - ⚡ Fun fact: I love to draw and cooking 
 
 
